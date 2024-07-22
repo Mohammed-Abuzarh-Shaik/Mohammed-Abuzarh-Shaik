@@ -2,7 +2,7 @@
 I'M Mohammed Abuzarh Shaik.
 (you can call me ' Abbu ')
 
- senior student of Artificial Intelligence & Machine Learning Department at Srinivasa Ramanujan Institute Of Technology - Ananthapuramu.
+ Graduate Alumini of Artificial Intelligence & Machine Learning Department at Srinivasa Ramanujan Institute Of Technology - Ananthapuramu.
 I am excited to begin my career in the route of Artificial Intelligence and I look forward in putting my education and aquired skills to use ,
 and I enjoy getting to create and work on projects as I can gain more knowledge and strengthen my skills.
 
